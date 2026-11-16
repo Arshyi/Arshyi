@@ -37,6 +37,9 @@ Looking for a **co-op / internship starting May 2027** (Canadian co-op work perm
 
 Tutoring for the UBC Engineering Undergraduate Society, wearable-posture and biomedical-signal coursework, and a habit of labelling every performance claim with its evidence.
 
+**Hackathon participations:** 2
+
 ## Find me
 
 [LinkedIn](https://www.linkedin.com/in/arshyiamehran) · Languages: English, Persian, Arabic, conversational French
+
